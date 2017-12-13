@@ -1,0 +1,2 @@
+# haticeylnz.github.io
+proje
